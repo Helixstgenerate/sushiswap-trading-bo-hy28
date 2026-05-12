@@ -1,4 +1,4 @@
-# 
+# Get the ultimate sushiswap trading bot with vip sushiswap trading bot Tool | rug-pull-detection + MEV-strategies. Featuring rug-pull-detection and MEV-strategies, it's the best
 
 
 
